@@ -83,7 +83,7 @@ UAE-focused vehicle import system:
 ---
 
 ## 📫 Contact Me
-- ✉️ Email: **youremail@example.com**
+- ✉️ Email: **alhiedi@hotmail.com**
 - 🔗 LinkedIn: **your-link**
 - 🌐 Portfolio: **your-website.com**
 
